@@ -1,4 +1,3 @@
 # Imtiaz Ali - IT Professional
 
-A competent, dynamic and a highly motivated Telecom Professional, having excellent multilayered work experience of **7+ years** with National and multi-National organizations.
-Seeking a challenging position in an organization, which has a culture of teamwork and ample opportunities for individual growth, the organization where pure talent and capabilities are appreciated.
+IT Administrator with 8+ years of experience supporting multi-platform computer software/hardware, networks, servers, security appliances and peripherals. Able to communicate effectively with all levels of management and staff. Proficient analytical and logical troubleshooting skills as well as able to assess and recommend solutions that facilitate IT business processes.
